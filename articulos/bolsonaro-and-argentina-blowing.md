@@ -1,4 +1,4 @@
-##Bolsonaro and Argentina: blowing hot and cold.
+## Bolsonaro and Argentina: blowing hot and cold.
 
 
 Brazil inaugurated, along with the current year, the government cycle of Jair Bolsonaro. He is the emerging surprise of the systemic crisis of the traditional political scaffolding.
