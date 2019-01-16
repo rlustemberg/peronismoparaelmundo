@@ -29,7 +29,7 @@ If to the divorce caused by the overlap of our conveniences with the Brazilian f
 
 #### Who are the "enemies" of Brazil?
 
-The sure internal disenchantment with the economic performance of Brazil in the times to come, predicts a greater social and political conflict, which is expected to be answered, in a "flight forward", with higher levels of deployment of repressive forces and flaring of discourse of intolerance.
+The sure internal disenchantment with the economic performance of Brazil in the times to come, predicts a greater social and political conflict, which is expected to be answered, doubling down, with higher levels of deployment of repressive forces and flaring of discourse of intolerance.
 
 This could configure a new scenario for our country, in terms of defense and national security.
 It is possible that pointing and fighting "internal enemies" (for example, by characterizing drug trafficking as terrorism) will not be enough to reduce the damage that economic failure will produce in the relationship between representatives and their representatives. Hypotheses of "external threats" could return to be the order of the day, as well as our country in the sights of Brazilian weapons.
